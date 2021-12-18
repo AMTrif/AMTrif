@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AMTrif
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning to learn
+- 💞️ I’m looking to collaborate eventually
+- 📫 How to reach me: it's better not to (at least not yet)
